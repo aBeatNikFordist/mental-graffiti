@@ -1,2 +1,2 @@
 # mental-graffiti
-various visualizations and prose
+visualizations and prose
