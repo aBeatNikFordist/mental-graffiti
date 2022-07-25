@@ -97,8 +97,8 @@ Honestly, let Hip-Hop know about this one section from that book: "From The Soul
 
 i'm just letting my spirit breathe  
 man  
-“Whatcha’ Sayin’ [Nick]?”
-(you know that mixtape)
+“Whatcha’ Sayin’ [Nick]?”  
+(you know that mixtape)  
 if you’re looking for a T.I.P.--  
 i am talking lil’ wayne  
 willie nelson  
