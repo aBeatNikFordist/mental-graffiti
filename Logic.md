@@ -43,7 +43,7 @@ Solid move with this album, I've been buying vinyls lately, myself. There's a lo
 
 # Dumb People:
 
-Some people probably think you're not that good because they don't appreciate the narrative element of writing--and speaking. Which seems to be how you differentiate yourself from others. Plus, tell these witty folks, calling you "half-cooked," that no one messes with peppers in preperation--furthermore, let's say they are right, well, they don't write any better! BOOM.
+Some people probably think you're not that good because they don't appreciate the narrative element of writing--and speaking. Which seems to be how you differentiate yourself from others. Plus, tell these witty folks, calling you "half-cooked," that no one messes with peppers in preparation--furthermore, let's say they are right, well, they don't write any better! BOOM.
 
 # My Current Mindset:
 
