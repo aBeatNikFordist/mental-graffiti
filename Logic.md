@@ -214,8 +214,8 @@ thinking chinese, outside of the box, signals--
 but white boy  
 you are not special  
 our history is that despicable  
-hollywood served up these patterns on a silver platter
-AND.
+hollywood served up these patterns on a silver platter  
+AND.  
 the real prejudice is that you have to do this  
 because you're white  
 our history is that unforgivable  
