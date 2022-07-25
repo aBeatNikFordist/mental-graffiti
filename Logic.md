@@ -39,43 +39,43 @@ Tell Eminem there's not a big enough "My Bad" that I can give him for that near 
 
 Good looks on your 2010 reference: listening to Mac. I was doing that, too, but with my buddy Troy: freestyling, “blowin’ swishers” :), and cruising. In fact, I didn't even know Mac until Troy showed me him. I would always grab beats off datpiff.com back then; that's how I found you, Hopsin, Cole, and KRIT.  
 
-“License and registration, please.”
-(i hand that over)
-“Have you been drinking?”
-(i was bobbing and weaving around pot-holes)
-‘No, officer.’
-“Mind if I take a look in the back?”
-(there’s only free weights to hold down my first car: literally, the white Dude, Where’s My Car? car--for correcting fishtails on snowy, new england roads that you do not Drive Slow on, homie)
-‘Sure.’
-(finds nothing)
-“Step out of the car.”
-(troy is all-too-justifiably nervous whilst holding down his composure like a champ)
-“Walk this line”
-(did it)
-… (other shit)
-“Alright, have you been smoking?”
-‘I was, but it’s all gone, now.’
-“Alright, and where are you heading to?”
-‘Haverhill’
-“From?”
-‘Haverhill’
-“So, you’re heading to Haverhill, from Haverhill, through Salibury?”
-(that’s a merrimack valley BC on 110)
-‘Yes.’
-“Alright, now, I want you to follow the tip of my pen.”
-(he moves it laterally)
-(i cannot snoop-dog focus on it)
-(but then a moth flew by my face)
-‘Uhh, my bad, that moth is distracting me.’
-“Alright, we’ll restart.”
-(this time I blindly scan my eyes with what i believe to be the moving position of the pen)
-“Alright, you’re all set--drive safely back to Haverhill.”
-(i get in the car)
-(troy has nothing to say)
-(cop drives away)
-(i spark up the second blunt left in the compartment under the tape-deck that aux-plugs into my mp3 of datpiff.com beats)
-(troy shakes his head in pseudo-shame that he has to deal with this white boy)
-(we go back to freestyling like knuckle-heads)
+“License and registration, please.”  
+(i hand that over)  
+“Have you been drinking?”  
+(i was bobbing and weaving around pot-holes)  
+‘No, officer.’  
+“Mind if I take a look in the back?”  
+(there’s only free weights to hold down my first car: literally, the white Dude, Where’s My Car? car--for correcting fishtails on snowy, new england roads that you do not Drive Slow on, homie)  
+‘Sure.’  
+(finds nothing)  
+“Step out of the car.”  
+(troy is all-too-justifiably nervous whilst holding down his composure like a champ)  
+“Walk this line”  
+(did it)  
+… (other shit)  
+“Alright, have you been smoking?”  
+‘I was, but it’s all gone, now.’  
+“Alright, and where are you heading to?”  
+‘Haverhill’  
+“From?”  
+‘Haverhill’  
+“So, you’re heading to Haverhill, from Haverhill, through Salibury?”  
+(that’s a merrimack valley BC on 110)  
+‘Yes.’  
+“Alright, now, I want you to follow the tip of my pen.”  
+(he moves it laterally)  
+(i cannot snoop-dog focus on it)  
+(but then a moth flew by my face)  
+‘Uhh, my bad, that moth is distracting me.’  
+“Alright, we’ll restart.”  
+(this time I blindly scan my eyes with what i believe to be the moving position of the pen)  
+“Alright, you’re all set--drive safely back to Haverhill.”  
+(i get in the car)  
+(troy has nothing to say)  
+(cop drives away)  
+(i spark up the second blunt left in the compartment under the tape-deck that aux-plugs into my mp3 of datpiff.com beats)  
+(troy shakes his head in pseudo-shame that he has to deal with this white boy)  
+(we go back to freestyling like knuckle-heads)  
 
 # Album:
 
