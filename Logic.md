@@ -64,4 +64,5 @@ At any rate, spitting with Dave is the next move for me. Check out Markov Chains
 My favorite side of a vinyl is side C of "Weird Scenes Inside the Gold Mine" by The Doors!
 
 Best,
+
 Nick
