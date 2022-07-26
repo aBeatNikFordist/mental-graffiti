@@ -380,6 +380,7 @@ i am beyond dr. jekyll and mr. hyde
 taming: german, shepherd, rotten, wilder  
 frankenstiens  
 
-And then I forgot something rather important that I vibe with from Thoreau in his essay: Life Without Principle--  
+And then I forgot something rather important that I vibe with from Thoreau in his essay:   Life Without Principle--  
 As I paraphrase--  
-"There is a type which cannot be bought, no matter what resources you offer one. The effective do what they can for the community--whether they get paid or not. Whereas the ineffective offer their ineffectiveness to the highest bidder--expecting to get ahold of some higher rank. And often, enough, they are not dissapointed."  
+"There is a type which cannot be bought, no matter what resources you offer one. The effective do what they can for the community--whether they get paid for it or not. Whereas the ineffective offer their ineffectiveness to the highest bidder--expecting to get a hold of some higher rank. And often, enough, they are not disappointed."  
+
