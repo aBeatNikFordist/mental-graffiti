@@ -45,7 +45,7 @@ Good looks on your 2010 reference: listening to Mac. I was doing that, too, but 
 (i was bobbing and weaving around pot-holes)  
 ‘No, officer.’  
 “Mind if I take a look in the back?”  
-(there’s only free weights to hold down my first car: literally, the white Dude, Where’s My Car? car--for correcting fishtails on snowy, new england roads that you do not Drive Slow on, homie)  
+(there’s only free-weights to hold down my first car: literally, the white Dude, Where’s My Car? car--for correcting fishtails on snowy, new england roads that you do not Drive Slow on, homie)  
 ‘Sure.’  
 (finds nothing)  
 “Step out of the car.”  
