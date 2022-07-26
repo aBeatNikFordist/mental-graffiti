@@ -1,4 +1,4 @@
-# July 23rd 2022
+# July 22nd 2022
 ##  Violated Freedom Of Speech:
 ### scrap notes meant for Elon Musk after listening to the 'zeros and ones' episode on Jordan Peterson's podcast
 *I'm assuming these internet satyrs want to force feed me this episode in one single go without digesting it maticulously, in real-time, to illustrate how legimate engineers take notes, by taking notes as an idea from the speakers sparks my interest. Perhaps, my STEM overseers, puppeteered by their managers with the delusion of resources--for they don't respect freedom, as it is now--are frustrated with not being careful themselves; as envy mixed with expectations, incentivizes your insecurity to bloom resentment, releasing the necessary fumes for your intolerance; for prejudice must smell magnificent to you like flies on crap.*
