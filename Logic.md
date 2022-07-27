@@ -400,6 +400,8 @@ The serious workman. - Do not talk about giftedness, inborn talents! One can nam
 I will say this much: I wacked drunkenness, incessantness, stalkership, lack of reverence for sacred things, a false sense of authority, and a woman all in one swing with the back of my elbow--but what did you read?  
 
 ## [2]  
+I will say this much: I wacked drunkenness, incessantness, stalkership, lack of reverence for sacred things, a false sense of authority, and a woman all in one swing with the back of my elbow--but what did you read?  
+
 (Nietzsche - Beyond Good and Evil)  
 25.  
 
