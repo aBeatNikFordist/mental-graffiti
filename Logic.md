@@ -397,3 +397,13 @@ Anyhow, Dave isn't doing so hot. He had a rough time in Miami. He got Proustian 
 163.  
 The serious workman. - Do not talk about giftedness, inborn talents! One can name great men of all kinds who were very little gifted. They *acquired* greatness, became 'geniuses' (as we put it), through qualities the lack of which no one who knew what they were would boast of: they all possessed that seriousness of the efficient workman which first learns to construct the parts properly before it ventures to fashion a great whole; they allowed themselves time for it, because they took more pleasure in making little, secondary things well than in the effect of a dazzling whole. The recipe for becoming a good novelist, for example, is easy to give, but to carry it out presupposes qualities one is accustomed to overlook when one says 'I do not have enough talent.' One has only to make a hundred or so sketches for novels, none longer than two pages but of such distinctness that every word in them is necessary; one should write down anecdotes each day until one has learned how to give them the most pregnant and effective form; one should be tireless in collecting and describing human types and characters; one should above all relate things to others and listen to others relate, keeping one's eyes and ears open for the effect produced on those present, one should excerpt for oneself out of the individual sciences everything that will produce an artistic effect when it is well described, one should, finally, reflect on the motives of human actions, disdain no signpost to instruction about them and be a collector of these things by day and night. One should continue in this many-sided exercise some ten years: what is then created in the workshop, however, will be fit to go out into the world. - What, however, do most people do? They begin, not with the parts, but with the whole. Perhaps they chance to strike a right note, excite attention and from then on strike worse and worse notes, for good, natural reasons. - Sometimes, when the character and intellect needed to formulate such a life-plan are lacking, fate and need take their place and lead the future master step by step through all the stipulations of his trade.  
 
+I will say this much: I wacked drunkenness, incessantness, stalkership, lack of reverence for sacred things, a false sense of authority, and a woman all in one swing with the back of my elbow--but what did you read?  
+
+[2]  
+(Nietzsche - Beyond Good and Evil)  
+25.  
+
+
+
+
+
