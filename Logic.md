@@ -402,6 +402,8 @@ July 27th in the early morning,
 
 I will say this much: I wacked drunkenness, incessantness, stalkership, lack of reverence for sacred things, a false sense of authority, and a woman all in one swing with the back of my elbow--but what did you read?  
 
+Jean Grae just started playing--we're probably fucked, and I say that with some surreal certainty.  
+
 (Nietzsche - Beyond Good and Evil)  
 25.  
 
